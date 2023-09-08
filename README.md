@@ -6,7 +6,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Linkedin, Twitter, StackOverflow, and Open Projects.
 - 🤔 I’m looking for help Landing a Full-Time Role.
 - 💬 Ask me about Cybersecurity, Incident Response, Ethical Hacking, Troubleshooting, and Project Management.
-- 📫 How to reach me: LinkedIn - @[jonathan-smith-73b699b5 ](https://www.linkedin.com/in/jonathan-smith-73b699b5/)
+- 📫 How to reach me: LinkedIn - @[jonathan-smith-73b699b5 ](https://www.linkedin.com/in/jonathan-smith-73b699b5/) & 901memphisz@gmail.com
 - 😄 Pronouns: He/Him.
 - ⚡ Fun fact: I like to travel to Brazil & Cali Colombia.
 - 🌴 Open To Work: Fully Remote.
